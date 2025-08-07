@@ -47,8 +47,8 @@ This is a **practice project** created to:
 ## 📫 Let's Connect
 
 If you're also learning like me, feel free to reach out or share tips!  
-📧 Email: [youremail@example.com]  
-🔗 LinkedIn: [Your LinkedIn profile link]
+📧 Email: [eklavyakapoor95@gmail.com]  
+🔗 LinkedIn: [Eklavya Kapoor]
 
 ---
 
